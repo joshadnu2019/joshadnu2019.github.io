@@ -4,6 +4,8 @@ Owned by Josh Del Castillo. Sharing my page would help! <3
 
 Hi there! I just want to inform that the Cats of the Philippines has its own breed, known as "Puspin."
 
+However, I invite you to watch the videos below:
+
 [![Watch the video](https://img.youtube.com/Jxtck1MAsd0/maxresdefault.jpg)](https://youtu.be/Jxtck1MAsd0)
 
 
@@ -34,3 +36,9 @@ We don't let him go inside our living room, kitchen, and areas inside our house 
 Before, we let him eat cat feeds (he was still a kitten), but when the pandemic started, we don't feed him cat feeds anymore. We feed him cat food from our left overs.
 
 Whenever he sees his master (my mom), he is importunate, he meows and energized because my mom feeds him food. But if he sees me, he meows a bit but does not importunate and sometimes he's scared of me while catching him. Haysst, haha. 😁😂 But I still love that cat so much. 😍
+
+Presuming Schedule:
+
+| Time | M | T | W | TH | F |
+| -----|---|---|---|----|---|
+| 4:30 PM | Bonding with Cat Time
