@@ -29,6 +29,15 @@ A puspin cat or also known as “Pusang Pinoy” is a species that has no specif
 This kind of cat can help people who are experiencing anxiety and depression, it will let them comfort in their problems. A puspin cat is affectionate, playful, quiet, calm, or also a mice hunter, so be cautious of its playful skills that might bite you. So take care of puspin cats to let them live longer.
 
 
+What Cats teach us:
+Indulge your curious spirit
+Choose your friends wisely
+Get plenty of rest
+Maintain a well-groomed appearance
+Don't forget to show your appreciation
+Eat more fish
+Stay aware of your surroundings
+Spend time soaking up the sun
 
 Fun Fact:
 
@@ -49,3 +58,8 @@ Presuming Schedule:
 ![IMG20220517211947](https://user-images.githubusercontent.com/97179756/169109202-991a21c4-6f75-4a92-b6f7-55474d78598c.jpg)
 May 2022 Look
 
+If you want to get in touch with me, feel free to contact me thru these social media platforms:
+facebook.com/joshchristan.delcastillo
+instagram.com/joshchristan.delcastillo
+twitter.com/jcddelcastillo
+tiktok.com/jcddelcastillo54226
