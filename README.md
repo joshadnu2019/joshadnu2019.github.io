@@ -13,7 +13,7 @@ However, I invite you to watch the videos below:
 
 
 ![IMG20210203140320](https://user-images.githubusercontent.com/97179756/169096116-2ad5ed13-8dc6-45e5-979a-ccc776364f0d.jpg)
-April 2021 Look
+April 2021 Look, under the chair of our beloved garden. 😺
 
 The Cat above is our pet. He is known as "Mingming." He is 2 years old. His Birthday is September 2019 (unknown day).
 
@@ -56,7 +56,7 @@ Presuming Schedule:
 | 4:30 PM | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time |
 
 ![IMG20220517211947](https://user-images.githubusercontent.com/97179756/169109202-991a21c4-6f75-4a92-b6f7-55474d78598c.jpg)
-May 2022 Look
+May 2022 Look, under our car. 😸
 
 
 If you want to get in touch with me, feel free to contact me thru these social media platforms:
