@@ -4,7 +4,8 @@ Owned by Josh Del Castillo, a Grade 9 Student of Ateneo de Naga University Junio
 
 Hi there! I just want to inform that the Cats of the Philippines has its own breed, known as "Puspin."
 
-However, I invite you to watch the videos below:
+
+However, I would like to invite you to watch the videos below:
 
 [![Watch the video](https://img.youtube.com/Jxtck1MAsd0/maxresdefault.jpg)](https://youtu.be/Jxtck1MAsd0)
 
@@ -60,7 +61,7 @@ Spend time soaking up the sun
 
 
 
-Presuming Schedule:
+## Presuming Schedule:
 
 | Time | M | T | W | TH | F | SAT | SUN |
 | -----|---|---|---|----|---|
