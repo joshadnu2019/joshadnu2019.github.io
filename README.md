@@ -58,5 +58,12 @@ Presuming Schedule:
 ![IMG20220517211947](https://user-images.githubusercontent.com/97179756/169109202-991a21c4-6f75-4a92-b6f7-55474d78598c.jpg)
 May 2022 Look
 
-If you want to get in touch with me, feel free to contact me thru this social media platform:
+If you want to get in touch with me, feel free to contact me thru these social media platforms:
+
 https://facebook.com/joshchristan.delcastillo
+
+https://instagram.com/joshchristan.delcastillo
+
+https://twitter.com/jcddelcastillo
+
+https://tiktok.com/jcddelcastillo54226
