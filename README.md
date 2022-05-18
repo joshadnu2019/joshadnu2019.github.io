@@ -48,15 +48,15 @@ Spend time soaking up the sun
 
 
 
-Fun Fact:
+Fun Facts:
 
-Last November 2019, my mom wants a Cat to live in our house and she finds a house in Queborac, Naga City with lots of cats and she was interested to get. She was about to be given 3 cats, but she only get 2, the white and gray cat. The gray cat was his brother, the gray cat was scared of us and he left our house and never came back. I feel good that our white cat stayed with us until now, a very loyal pet!
+~ Last November 2019, my mom wants a Cat to live in our house and she finds a house in Queborac, Naga City with lots of cats and she was interested to get. She was about to be given 3 cats, but she only get 2, the white and gray cat. The gray cat was his brother, the gray cat was scared of us and he left our house and never came back. I feel good that our white cat stayed with us until now, a very loyal pet!
 
-We don't let him go inside our living room, kitchen, and areas inside our house (because my grandparents don't want for our safety from allergies, cat bite, etc.), but we let him stay in our garden, laundry area, and outer areas of our house and we let him go outside and bond anywhere.
+~ We don't let him go inside our living room, kitchen, and areas inside our house (because my grandparents don't want for our safety from allergies, cat bite, etc.), but we let him stay in our garden, laundry area, and outer areas of our house and we let him go outside and bond anywhere.
 
-Before, we let him eat cat feeds (he was still a kitten), but when the pandemic started, we don't feed him cat feeds anymore. We feed him cat food from our left overs.
+~ Before, we let him eat cat feeds (he was still a kitten), but when the pandemic started, we don't feed him cat feeds anymore. We feed him cat food from our left overs.
 
-Whenever he sees his master (my mom), he is importunate, he meows and energized because my mom feeds him food. But if he sees me, he meows a bit but does not importunate and sometimes he's scared of me while catching him. Haysst, haha. 😁😂 But I still love that cat so much. 😍
+~ Whenever he sees his master (my mom), he is importunate, he meows and energized because my mom feeds him food. But if he sees me, he meows a bit but does not importunate and sometimes he's scared of me while catching him. Haysst, haha. 😁😂 But I still love that cat so much. 😍
 
 
 
