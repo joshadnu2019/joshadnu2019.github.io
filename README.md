@@ -17,6 +17,7 @@ April 2021 Look, under the chair of our beloved garden. 😺
 
 The Cat above is our pet. He is known as "Mingming." He is 2 years old. His Birthday is September 2019 (unknown day).
 
+
 LOCAL NAME: PUSA
 
 COMMON NAME: PUSPIN CAT 
@@ -28,6 +29,7 @@ A puspin cat or also known as “Pusang Pinoy” is a species that has no specif
 	
 This kind of cat can help people who are experiencing anxiety and depression, it will let them comfort in their problems. A puspin cat is affectionate, playful, quiet, calm, or also a mice hunter, so be cautious of its playful skills that might bite you. So take care of puspin cats to let them live longer.
 
+P.S. Scientific information above is copy-pasted from my Flora & Fauna project from my Grade 8 Science 3rd Term.
 
 What Cats teach us:
 Indulge your curious spirit
