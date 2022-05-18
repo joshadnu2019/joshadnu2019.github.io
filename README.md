@@ -1,6 +1,6 @@
-## Welcome to Josh Del Castillo's GitHub Pages
+## Welcome to Josh's ADNU 2019 pages
 
-Owned by Josh Del Castillo. Sharing my page would help! <3
+Owned by Josh Del Castillo, a Grade 9 Student of Ateneo de Naga University Junior High School. Sharing my page would help! <3
 
 Hi there! I just want to inform that the Cats of the Philippines has its own breed, known as "Puspin."
 
@@ -10,6 +10,7 @@ However, I invite you to watch the videos below:
 
 
 [![Watch the video](https://img.youtube.com/QTfhzURMAsI/maxresdefault.jpg)](https://youtu.be/QTfhzURMAsI)
+
 
 
 ![IMG20210203140320](https://user-images.githubusercontent.com/97179756/169096116-2ad5ed13-8dc6-45e5-979a-ccc776364f0d.jpg)
@@ -31,7 +32,11 @@ This kind of cat can help people who are experiencing anxiety and depression, it
 
 P.S. Scientific information above is copy-pasted from my Flora & Fauna project from my Grade 8 Science 3rd Term.
 
+
+
+
 What Cats teach us:
+
 Indulge your curious spirit
 Choose your friends wisely
 Get plenty of rest
@@ -40,6 +45,8 @@ Don't forget to show your appreciation
 Eat more fish
 Stay aware of your surroundings
 Spend time soaking up the sun
+
+
 
 Fun Fact:
 
@@ -51,14 +58,20 @@ Before, we let him eat cat feeds (he was still a kitten), but when the pandemic 
 
 Whenever he sees his master (my mom), he is importunate, he meows and energized because my mom feeds him food. But if he sees me, he meows a bit but does not importunate and sometimes he's scared of me while catching him. Haysst, haha. 😁😂 But I still love that cat so much. 😍
 
+
+
 Presuming Schedule:
 
 | Time | M | T | W | TH | F | SAT | SUN |
 | -----|---|---|---|----|---|
 | 4:30 PM | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time |
 
+
+
 ![IMG20220517211947](https://user-images.githubusercontent.com/97179756/169109202-991a21c4-6f75-4a92-b6f7-55474d78598c.jpg)
 May 2022 Look, under our car. 😸
+
+
 
 
 If you want to get in touch with me, feel free to contact me thru these social media platforms:
