@@ -42,9 +42,9 @@ Whenever he sees his master (my mom), he is importunate, he meows and energized 
 
 Presuming Schedule:
 
-| Time | M | T | W | TH | F |
+| Time | M | T | W | TH | F | SAT | SUN|
 | -----|---|---|---|----|---|
-| 4:30 PM | Bonding with Cat Time
+| 4:30 PM | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time | Bonding with Cat Time |
 
 ![IMG20220517211947](https://user-images.githubusercontent.com/97179756/169109202-991a21c4-6f75-4a92-b6f7-55474d78598c.jpg)
 May 2022 Look
