@@ -74,7 +74,9 @@ May 2022 Look, under our car. 😸
 
 
 
-If you want to get in touch with me, feel free to contact me thru these social media platforms:
+If you want to get in touch with me, feel free to contact me thru these social media platforms: 
+(I would appreciate your comments and concerns as I am a pet lover 😄) 
+
 
 https://facebook.com/joshchristan.delcastillo
 
